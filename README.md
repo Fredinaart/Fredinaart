@@ -1,0 +1,8 @@
+- 👋 Hej mit navn er Tina Egonsdatter Damholt Koch, jeg er 60 år og er billede kunstner. jeg har malet siden 80erne hvor jeg startede med
+- oliemaling på lærrede, og akvarel på papir. senere er det blevet til akrylmaling på papir, akvarel, alkohol ink, abtrakt, portrætter
+- dyre billeder, natur og meget andet 
+- 👀 jeg intresere mig for fugle fotografering, og farvefrøer, lydbøger og min tro på Jehova 
+- 📫 du kan få fat i mig på mail tinadamholtkoch@gmail.com, telefon +45 50285669
+- ⚡ Fun fact: jeg har en kat som hedder Hovsa og han er en skibskat
+- på facebook har jeg en side med kunst fredinaArt, frøer fredina's farvefrøer og hovsa
+- jeg udstiller når muligheden byder sig og kan ses under fanen, udstillinger tidligere og kommende 
